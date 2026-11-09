@@ -1,4 +1,4 @@
-Nahian: The Ganja Seeker
+Nahian: The Ganja Seeker,
 An ancient tale of betrayal, forbidden magic, and a desperate escape.
 
 Long, long ago, in an age when magic ruled the earth and the dead whispered beneath its surface, there lived a mysterious wanderer named Nahian, the Ganja Seeker.
